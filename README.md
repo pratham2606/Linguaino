@@ -22,6 +22,13 @@ But watch out for Sylvie—she’s Emily’s sharp-tongued boss, always demandin
 So, are you ready to join Emily on this exciting journey?
 Let’s dive in and master French—or should we say, Français avec Emily!!!
 
+https://youtu.be/pbg_S6CHIls
+
+https://youtu.be/PzPHvfPEAt8
+
+Uploading WhatsApp Video 2024-10-26 at 13.14.56.mp4…
+
+
 ---
 ### [Gabriel -- Chef and Owner of restraunt](https://hono-barista.abhiruppaul1249.workers.dev/chat)
 
