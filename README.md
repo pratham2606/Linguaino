@@ -1,5 +1,7 @@
 # Linguaino
 
+![WhatsApp Image 2024-10-26 at 13 25 04](https://github.com/user-attachments/assets/32141b4c-de1b-4c65-a1c4-25828b63270a)
+
 This is Emily!
 A bright, happy soul, excited to start her new job in France! But, as we know, things aren’t always smooth sailing...
 
@@ -27,6 +29,11 @@ https://youtu.be/pbg_S6CHIls
 https://youtu.be/PzPHvfPEAt8
 
 Uploading WhatsApp Video 2024-10-26 at 13.14.56.mp4…
+
+
+[MumbaiHacks Deck Format.pptx](https://github.com/user-attachments/files/17529516/MumbaiHacks.Deck.Format.pptx)
+
+
 
 
 ---
