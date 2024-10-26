@@ -2,6 +2,12 @@
 
 ![WhatsApp Image 2024-10-26 at 13 25 04](https://github.com/user-attachments/assets/32141b4c-de1b-4c65-a1c4-25828b63270a)
 
+![Screenshot 2024-10-25 232646](https://github.com/user-attachments/assets/5d221efd-bafd-4cb7-bfaa-755883319e8e)
+
+![Screenshot 2024-10-25 232646 (1)](https://github.com/user-attachments/assets/be8b2890-2e33-4fa7-9e47-08891fd6c304)
+
+![Screenshot 2024-10-25 232722](https://github.com/user-attachments/assets/a39a924d-b08d-4912-aa03-3020afb9cde5)
+
 This is Emily!
 A bright, happy soul, excited to start her new job in France! But, as we know, things aren’t always smooth sailing...
 
