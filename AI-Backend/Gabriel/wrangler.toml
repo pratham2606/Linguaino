@@ -4,7 +4,7 @@ compatibility_date = "2024-10-21"
 compatibility_flags = [ "nodejs_compat" ]
 
 [vars]
-GEMINI_API_KEY = "AIzaSyAU0bwfWHpMbMJlo7McEwOxt0mHJmSoU54"
+GEMINI_API_KEY = "........"
 
 # [[kv_namespaces]]
 # binding = "MY_KV_NAMESPACE"
