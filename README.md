@@ -28,7 +28,7 @@ But watch out for Sylvie—she’s Emily’s sharp-tongued boss, always demandin
 So, are you ready to join Emily on this exciting journey?
 Let’s dive in and master French—or should we say, Français avec Emily!!!
 
-https://youtu.be/pbg_S6CHIls
+https://youtu.be/sbaeuzjh2j0 (The Intro)
 
 https://youtu.be/PzPHvfPEAt8
 
